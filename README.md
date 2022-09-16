@@ -1,0 +1,2 @@
+# Lockpicking-GTA-V-Script
+YOU SHOULD PUT İN THE SCRİPTS FİLE.HAVE A FUN!
